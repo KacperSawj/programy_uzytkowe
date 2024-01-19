@@ -1,1 +1,1 @@
-# programy_uzytkowe
+# programy_uzytkowe kolokwium
